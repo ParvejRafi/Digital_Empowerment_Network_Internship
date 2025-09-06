@@ -1,1 +1,1 @@
-Here is the all completed 6 Task for Digital Empowerment network Cyber Internship
+The six tasks for the Digital Empowerment Network Cyber Internship are uploaded here.
